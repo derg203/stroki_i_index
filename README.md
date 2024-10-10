@@ -1,0 +1,1 @@
+# stroki_i_index
